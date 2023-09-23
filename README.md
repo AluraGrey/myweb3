@@ -1,4 +1,4 @@
-# MY WEB3 PROFILE PICTURES
+# MY WEB3 PROFILE PICTURE
 
 - 0xAlura (1).jpg
 - 0xAlura (2).jpg
